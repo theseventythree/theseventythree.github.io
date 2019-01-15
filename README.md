@@ -1,4 +1,4 @@
 The Seventy Three
 =================
 
-Coming soon. Email <Rapahel@theseventythree.com> for more info.
+Coming soon. Email <Raphael@theseventythree.com> for more info.
