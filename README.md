@@ -1,4 +1,4 @@
-The Seventy Three
-=================
+www.theseventythree.com
+=======================
 
-Coming soon. Email <Raphael@theseventythree.com> for more info.
+Email <Raphael@theseventythree.com> for more info.
